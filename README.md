@@ -1,5 +1,1 @@
-# INFO IN MAIN
-
-![Screenshot_20250525-144105~2](https://github.com/user-attachments/assets/92f94f3a-959d-4099-ada4-bc05a0f772d3)
-
-I changed the main accs name so it's @BlueNightSt4rs !!
+![7839f080-628a-4277-9b21-10fa4251eb54](https://github.com/user-attachments/assets/de842701-276a-490e-9b10-b10ccef33b2d)
